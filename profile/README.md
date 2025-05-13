@@ -4,6 +4,8 @@ For me, Flappy Bird wasn’t just a mobile time-killer — it was a psychologica
 
 If you’ve ever felt that itch — or if you’re curious why a pixelated bird once drove the internet wild —  **Flappy Bird Unblocked** is your perfect starting point.
 
+🎯 **[Click to play Flappy Bird Unblocked for free rght on your browser!](https://1kb.link/eYVoXB)**
+
 ## Why Should You Choose Flappy Bird Unblocked?
 
 Since the original app was taken down, playing Flappy Bird became difficult.  But Flappy Bird Unblocked brings the exact same experience — accessible anywhere, anytime:
